@@ -1,8 +1,9 @@
 [![](https://visitcount.itsvg.in/api?id=JhonatanGuarin&icon=0&color=1)](https://visitcount.itsvg.in)
 
 # 💫 About Me:
-I should log out from the unal computers 
+**I should log out from the unal computers** 
 ![zzz](https://i.redd.it/44v3s73ek3cd1.jpeg)
+**no te preocupes no hice nada mas atte Anonymous (ten mas cuidado)**
 Hello! I'm a 25-year-old programmer from Colombia and a Systems Engineering student. I'm passionate about constantly learning and improving in software development, always striving to stand out and contribute to innovative projects.<br><br>I'm open to collaborating on challenges that allow me to grow professionally and add value to the teams I work with. If you're looking for someone committed and eager to learn, I'm ready to join your next project!<br><br>
 
 ## 🌐 Socials:
